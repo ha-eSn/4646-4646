@@ -7,12 +7,12 @@
 \- openEND<br><br>
 
 ## 01. gate to your DIGITAL world in the 21st century<br>
-RETRO meets FUTURE - AI with noiTERMINAL on board
+// RETRO meets FUTURE - AI with noiTERMINAL on board
 
 ## 02. my HOME is my CASTLE<br>
 // your DATA - your PLACE - your RULEZ
 
-## 03. ## language FIRST - semantic EVOLUTION<br>
+## 03. language FIRST - semantic EVOLUTION<br>
 // HaMeL Language - Human Machine(+AI) Language - HU-AI-HU
 
 ## 04. ha-eSⁿ - ekoSYSTEMⁿ<br>
@@ -23,12 +23,14 @@ RETRO meets FUTURE - AI with noiTERMINAL on board
 
 ==> [FULL FREEDOM TO configure + customize + extend]<br>
 <=> [FRAMEWORK + UI + NAVIGATION + LAYOUT + DESIGN]<br>
-++ [ WORKFORCE + WORKSPACE]<br>
-==>  your customized workFLOW on any display, including CRT and mobile, everywhere, always<br>
+++ [WORKFORCE + WORKSPACE]<br>
+==> [your customized WORKFLOW on any DISPLAY, including CRT and MOBILE, everywhere, always...]<br>
 
-\>\> [GoDm0dE].exe \>\> Yeah!<br><br><br><br>
+## 06. [GoDm0dE].exe<br>
 
-*// noi<br>
-*// design with us! Yeah!<br>
-*// ha-eSn_VISION_v.4646-4646.001.17-NWBORND_20261124<br>
-*// v.001.17, 24.11.2026, 22:18, baracudas*<br>
+// [DONE] >> go spend time with your FAMILY & FRIENDS, enjoy your LIFE! noi<br><br><br><br><br><br>
+
+*// collab, msg me*<br><br>
+*// design with us!*<br>
+*// ha-eSn_VISIONs_v.4646-4646.001.19-NWBORND_20261124*<br>
+*// v.001.19, 24.11.2026, 22:18, baracudas*<br>
