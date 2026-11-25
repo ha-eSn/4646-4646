@@ -32,5 +32,5 @@
 
 *// collab, msg me*<br><br>
 *// design with us!*<br>
-*// ha-eSn_VISIONs_v.4646-4646.001.19-NWBORND_20261124*<br>
-*// v.001.19, 24.11.2026, 22:18, baracudas*<br>
+*// ha-eSn_VISIONs_v.4646-4646.001.20-NWBRND_20261124*<br>
+*// v.001.20, 24.11.2026, 22:18, baracudas*<br>
